@@ -14,3 +14,9 @@
 
 5
 ![1_5](https://user-images.githubusercontent.com/112740723/194023493-25aaa40b-0264-449f-8da0-d91db8498a42.png)
+
+6
+![1_6](https://user-images.githubusercontent.com/112740723/194023869-c3253cef-fa34-4e21-850b-0b257e426bdc.png)
+
+7
+
