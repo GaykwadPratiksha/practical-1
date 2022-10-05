@@ -22,4 +22,8 @@
 ![1_7](https://user-images.githubusercontent.com/112740723/194024241-2189ed24-28a6-4802-a07f-b048486de166.png)
 
 8
+![1_8](https://user-images.githubusercontent.com/112740723/194024659-a9be4d35-30fa-4b49-96c4-20ade2a09aea.png)
+
+9
+
 
