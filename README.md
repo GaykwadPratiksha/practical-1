@@ -36,4 +36,16 @@
 
 ![1__11](https://user-images.githubusercontent.com/112740723/194025233-8fe631f2-fe1c-4a0f-83c2-f919438ee097.png)
 
+Ex_1
+
+![Ex_1](https://user-images.githubusercontent.com/112740723/194101294-f2f4bb88-4441-4328-964d-49d0923cd065.png)
+
+Ex_2
+
+![Ex_2](https://user-images.githubusercontent.com/112740723/194101359-e4ffb592-2801-42ca-9357-29b6b31d03e2.png)
+
+Ex_3
+
+![Ex_3](https://user-images.githubusercontent.com/112740723/194101404-bfaa1d91-a95b-4801-9462-f6fe82da2edf.png)
+
 
